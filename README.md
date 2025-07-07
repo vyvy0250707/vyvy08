@@ -20,4 +20,4 @@
 
 如果你正在寻找一个免费的、高清的日本AV免费资源平台，试试我们推荐的这些站点吧。这里有最新、最热的影片，高清无水印的播放体验，不卡顿、无广告的无干扰观看，让你尽情享受顶级的日本AV资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vyvy0250707/vyvy08 ）</span>
